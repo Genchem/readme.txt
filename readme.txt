@@ -1,1 +1,1 @@
-HNG Repository by Idrisia
+HNG Repository by Genesis 
